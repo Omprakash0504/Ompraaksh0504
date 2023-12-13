@@ -7,13 +7,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=omprakash0504&label=Profile%20views&color=0e75b6&style=flat" alt="omprakash0504" /> </p>
 
-- 🔭 I’m currently working on **book**
+- 🔭 I’m currently working on **own project**
 
-- 📝 I regularly write articles on [https://www.linkedin.com/in/om-prakash-sahoo-9241b2235/](https://www.linkedin.com/in/om-prakash-sahoo-9241b2235/)
+- 📝 my linkdin profile [https://www.linkedin.com/in/om-prakash-sahoo-9241b2235/](https://www.linkedin.com/in/om-prakash-sahoo-9241b2235/)
 
 - 📫 How to reach me **8260693117**
 
-- 📄 Know about my experiences [om prakash sahoodocx.pdf](om prakash sahoodocx.pdf)
+- 📄 Know about my experiences [om prakash sahoodocx.pdf]
 
 - ⚡ Fun fact **I think always on me**
 
